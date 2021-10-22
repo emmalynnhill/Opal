@@ -1,1 +1,1 @@
-# Opal
+# Opal Jewelry 
